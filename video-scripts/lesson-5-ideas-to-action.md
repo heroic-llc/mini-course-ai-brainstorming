@@ -19,3 +19,5 @@ Document your thinking. Ask A I to summarize the brainstorming process and key d
 Brainstorming with A I isn't just about having more ideas. It's about having better options and clearer paths forward.
 
 You now have the tools to think more creatively with A I. Use them often.
+
+And if you want a place to keep exploring, that's what writingIO is all about. We've built a home for your A I journey, where you can access the best tools, learn new skills, and get real support when you need it. No bouncing between platforms. No going it alone. Just powerful A I, thoughtful learning, and real people behind everything you can reach out to anytime. We created writingIO because we believe everyone should feel confident using A I. Come see what we've put together. We think you'll enjoy it.
